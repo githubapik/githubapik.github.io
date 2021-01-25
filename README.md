@@ -96,4 +96,3 @@ So long as your soul is still in your body, there is still hope and Allah is ope
 
 Just start and keep going… there is no hopelessness in this path
 </div>
-</html>
